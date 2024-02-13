@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **React**
 
-- 📫 How to reach me **https://www.linkedin.com/in/amit-kumar-a9030b293/**
+- 📫 How to reach me **pandeyamit01092002@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
